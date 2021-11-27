@@ -16,3 +16,9 @@ A Brief Introduction to Cloud Computing
 
 ![HUAWEI Cloud I 07](https://user-images.githubusercontent.com/93165498/143679523-eb9bfefd-ebe2-448c-af97-5c2c58cc072f.jpg)
 
+![HUAWEI Cloud I 08](https://user-images.githubusercontent.com/93165498/143679528-dc8d306b-0196-4543-a2ae-fb66a21966f9.jpg)
+
+![HUAWEI Cloud I 09](https://user-images.githubusercontent.com/93165498/143679531-34723264-f088-44c4-a891-b20e5f460e3c.jpg)
+
+![HUAWEI Cloud I 10](https://user-images.githubusercontent.com/93165498/143679535-6bb31299-4b02-4cc3-bdf0-8d91df084e1e.jpg)
+
