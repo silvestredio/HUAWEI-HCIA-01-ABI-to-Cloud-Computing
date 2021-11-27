@@ -40,3 +40,6 @@ Curso Cloud HUAWEI HCIA Apostila Oficial em Ingles 2021
 
 ![HUAWEI Cloud I 19](https://user-images.githubusercontent.com/93165498/143680390-3121727d-75ee-4f93-802c-11bd3338a7eb.jpg)
 
+![HUAWEI Cloud I 20](https://user-images.githubusercontent.com/93165498/143680403-4d05d555-ecbb-436d-8da3-8ee14c92234d.jpg)
+
+![HUAWEI Cloud I 21](https://user-images.githubusercontent.com/93165498/143680420-362601d9-e080-473a-9129-a12da3821664.jpg)
